@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @jewelyy
 - I don't know much about coding but I'm always willing to learn!
+- Yes that is me in a hotdog suit.
 - You can reach me on discord: jewelyjewely#6969
 
 <!---
